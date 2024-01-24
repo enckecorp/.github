@@ -1,4 +1,4 @@
 ## Bem vindo ao GitHub da Encke Corporation! ☄️
-![2P_20200707_rhemann](https://github.com/enckecorp/.github/assets/55598152/dc188a82-3713-4384-91df-d0627fae66dc)
+![satelite-brilhante-explode-em-majestosa-temperatura-de-aquecimento-do-por-do-sol-na-atmosfera-gerada-por-ia](https://github.com/enckecorp/.github/assets/55598152/45f20470-6d4c-4ed0-9413-9861b40f1744)
 
-Nós da Encke tabalhamos dia e noite evoluindo e desenvolvendo soluções para um futuro mais simples e tecnológico.
+A Encke Corporation trabalha dia e noite evoluindo e desenvolvendo soluções para um futuro mais simples e tecnológico.
